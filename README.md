@@ -1,4 +1,4 @@
-¡Hola, soy David Vásquez Ortuño! 👋
+¡Hola, soy David Vasquez Ortuño! 👋
 Edad: 22 años
 Estudios: Estudiante de Ingeniería de Sistemas en la Universidad Mayor de San Simón (UMSS)
 
